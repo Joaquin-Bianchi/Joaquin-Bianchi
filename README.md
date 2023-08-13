@@ -8,7 +8,8 @@
 
 
 - I'm currently learning   backend technologies.
-  How to reach me: Joaquin Bianchi on every social. joaqobianchi13@gmail.com via email. www.linkedin.com/in/joaquin-bianchi-89725721a
+  How to reach me: Joaquin Bianchi on every social. via email: joaqobianchi13@gmail.com
+  www.linkedin.com/in/joaquin-bianchi-89725721a
 
 
 
